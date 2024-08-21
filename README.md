@@ -1,2 +1,3 @@
 Couldn't upload cause file was too large...
 onshape linke: https://cad.onshape.com/documents/d611f355c2a9858c8d2e0df7/w/5c623a009da733e2881fafd7/e/41da545e8f1c296ad6ab1afb 
+![Screenshot (1125)](https://github.com/user-attachments/assets/d9acb10e-96f4-4105-b7d1-241f03dc365d)
